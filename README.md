@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @H4L1M4T0U
-- 👀 I’m interested in ...
+- 👀 I’m interested in 🤓
 - 🌱 I’m currently learning python
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on a murder mystery game im making
 - 📫 How to reach me @h4li.who on ig
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: 🤓im a sigma
